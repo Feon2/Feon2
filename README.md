@@ -7,5 +7,5 @@ Utilizo esse espaço para minha organização e compartilhamentos dos meus proje
 Você pode entrar em contato comigo:
 igorcesar@prof.educacao.sp.gov.br
 
-![](![image](https://github.com/Feon2/Feon2/assets/172528627/3d8a90c8-07de-42b6-83c3-e36116268734)
-)
+![image](https://github.com/Feon2/Feon2/assets/172528627/3d8a90c8-07de-42b6-83c3-e36116268734)
+
